@@ -1,1 +1,1 @@
-https://urevdanil.github.io/rabota-3/
+https://jekatut.github.io/Rab-3/
